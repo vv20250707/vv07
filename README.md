@@ -17,4 +17,4 @@
 所有视频都保证高清、无水印，并且平台特别注重隐私保护，避免弹窗广告的困扰，确保您的观影过程无干扰。支持多设备播放，无论您是在家用电脑观看，还是外出使用手机，都可以顺畅观看最新日本AV资源。
 
 如果你正在寻找一个日本AV免费在线观看的平台，不妨试试我们推荐的这些站点。最新影片、高清画质、无广告播放，绝对能满足您的观影需求，让您尽情享受精彩内容。
-<span style="display:none;">[Canonical link](https://github.com/vv20250707/vv07）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250707/vv07 ）</span>
